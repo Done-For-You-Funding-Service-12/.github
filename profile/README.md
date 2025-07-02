@@ -18,13 +18,13 @@ The Done For You Funding Service is a comprehensive solution designed to assist 
 * **Personalized Guidance:** An initial one-on-one roadmap call with the Founder & CEO.
 * **Direct Communication:** Exclusive 24/7 chat access with the CEO for continuous support.
 
-[Join Done For You Funding Service Now](https://kelexbawz.com/dfy-funding-service)
+[Join Done For You Funding Service Now](https://whop.com/1-1-personal-done-for-you-funding-service?a=kelechienwere1234)
 
 ## Pricing and Value
 
 The service is offered at a one-time payment of \$5,000. Considering the potential to secure funding upwards of \$300,000 at 0% interest, the return on investment can be substantial. Additionally, the inclusion of a \$10,000-valued course and direct access to the CEO adds significant value to the package.
 
-[Join Done For You Funding Service Now to Unlock Exclusive Funding Opportunities](https://kelexbawz.com/dfy-funding-service)
+[Join Done For You Funding Service Now to Unlock Exclusive Funding Opportunities](https://whop.com/1-1-personal-done-for-you-funding-service?a=kelechienwere1234)
 
 ## Who Is It For?
 
@@ -44,7 +44,7 @@ This service is ideal for:
 * **Educational:** Provides valuable insights through the included course.
 * **Support:** Continuous guidance via direct communication with the CEO.
 
-[Join Done For You Funding Service Now to Experience Hassle-Free Funding](https://kelexbawz.com/dfy-funding-service)
+[Join Done For You Funding Service Now to Experience Hassle-Free Funding](https://whop.com/1-1-personal-done-for-you-funding-service?a=kelechienwere1234)
 
 ## Potential Drawbacks
 
@@ -60,4 +60,4 @@ Users have praised the service for its comprehensive support and valuable resour
 
 The Done For You Funding Service offers a robust solution for those seeking substantial funding without the traditional hurdles. With its comprehensive resources, expert guidance, and risk-free guarantee, it stands out as a valuable investment for eligible individuals and businesses.
 
-[Join Done For You Funding Service Now to Secure Your Financial Future](https://kelexbawz.com/dfy-funding-service)
+[Join Done For You Funding Service Now to Secure Your Financial Future](https://whop.com/1-1-personal-done-for-you-funding-service?a=kelechienwere1234)
