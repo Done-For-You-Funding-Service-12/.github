@@ -1,5 +1,4 @@
 # Done For You Funding Service Review: Is It Worth Your Investment in 2025?
-![Uploading Done For You Funding Service.png…]()
 
 ## Introduction
 
